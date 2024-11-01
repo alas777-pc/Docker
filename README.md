@@ -1,5 +1,5 @@
-![](D:\Учеба\скриншот\brauser.png)
+![](https://drive.google.com/file/d/1ydERSuuR5AlFBo_fp7BJ2EEDrOLX1_He/view?usp=drive_link)
 
-![](D:\Учеба\скриншот\docker.png)
+![](https://drive.google.com/file/d/172bh8EIdYVMtFdhHYol4LIDS1lIPrkeP/view?usp=drive_link)
 
-![](D:\Учеба\скриншот\Idea.png)
+![](https://drive.google.com/file/d/1VT6pjyjvezueURgH8AXzo07E1t32nZSW/view?usp=drive_link)
